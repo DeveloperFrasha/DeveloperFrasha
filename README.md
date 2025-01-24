@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DeveloperFrasha
-- 👀 I’m interested in web desin and development.
+- 👀 I’m interested in web design and development.
 - 🌱 I’m currently learning html,java.
 - 💞️ I’m looking to collaborate on softwaredevelopment.
 - 📫 How to reach me 010708025055.
