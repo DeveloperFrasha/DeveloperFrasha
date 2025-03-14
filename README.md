@@ -2,7 +2,7 @@
 - 👀 I’m interested in web design and development.
 - 🌱 I’m currently learning html,java.
 - 💞️ I’m looking to collaborate on softwaredevelopment.
-- 📫 How to reach me 010708025055.
+- 📫 How to reach me 0107805402.
 - 😄 Pronouns: He...
 - ⚡ Fun fact: cool and jolly yet serious.
 
